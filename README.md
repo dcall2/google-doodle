@@ -2,8 +2,12 @@
 
 ## Brainstorm Ideas
 
-* ABC
-* XYZ
+* Thursday, June 21
+Go Skateboarding Day 2018 in United States of America
+
+*Day of the Dead
+
+
 
 
 ## Content Doodle
